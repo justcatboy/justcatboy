@@ -1,6 +1,4 @@
-# justcatboy.github.io
-
-# Hi 👋, I'm justcatboy
+# I'm justcatboy
 
 ### One day, I will end up in the world of anime.
 
